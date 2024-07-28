@@ -58,11 +58,17 @@ So, I went with the least offensive flavor which was one of the GT kombuchas. I 
 ## Flavor and Bottle 
 
 1.) Grab some blueberries, raspberries or whatever you want to flavor the 'bucha with. 
+
 2.) put in enough to cover the bottom of the bottle. 
+
 3.) Secure a lit on top of the bottle(s) that you are pouring the kombucka into. 
+
 4.) Set aside 1 cup of your kombucha and put it in your scobe hotel. Place the scobe from your batch in with this liquid. You can store it like this for up to a few weeks before you need to refrigerate it. 
+
 4.) Let the bottles sit for 5 days. 
+
 5.) After 5 days, place bottles in refrigerator. 
+
 
 ## Existing Scobe Directions 
 
