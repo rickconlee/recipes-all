@@ -27,19 +27,33 @@ So, I went with the least offensive flavor which was one of the GT kombuchas. I 
 ### Instructions 
 
 1.) Place 8 cups of filtered water in the vessel where you will be making the kombucha, place the remaining 8 cups in the pot where you will make the tea.
+
 2.) Boil the water to 212 deg F. 
+
 3.) Put tea bags in the the boiling water - dunk them up and down a bunch of times. This will make sure that all the tea bags get saturated. You want that water to be as black as your soul. 
+
 4.) Remove the boiling water from the heat source. 
+
 5.) Set a timer for 4 minutes. When the timer goes off, remove the tea bags. You dont want to make it too bitter. 4 minutes is the optimal brew time. 
+
 6.) After you remove the tea from the heat source, palce thermometer in the tea. 
+
 7.) Stir in the sugar. It is important to stir the sugar in now at this step because the water molecules are moving around faster and wider than they do at room temp, so it will be easier to dissolve the solute into the water/sugar solution.
+
 8.) Wait until the tea gets down to 80 deg F. 
+
 9.) Add the tea to the room-temp water that you poured into your brewing vessel. 
+
 10.) Take another temp reading. This should be in the high 70's. If it is not, wait for 15-20 minutes. 
+
 11.) Once optimal temp has been reached, add the store-bought kombucha, stirring gently. 
+
 12.) Cover and put in dark, temperature stable place. 
+
 13.) Wait 7 days before checking on the kombucha. THere should be a gelatnious round layer that has formed on top, and it should smell sour. 
+
 14.) After the time has passed, check the scobe, make sure there is no mold or other growths on top. If there is any green, blue or black, toss it and start over. 
+
 
 ## Flavor and Bottle 
 
