@@ -50,8 +50,11 @@ This recipe came from that dude on YouTube who has the tasty-looking food shorts
 (See rice-jasmine.md for rice instructions) 
 
 ## Portioning 
-1. slice up 2 avocados
-2. Add 
+1. slice up 2 whole avocados
+2. Add 1/2 or 1 whole cup of rice to each of the 4 containers
+3. Add the chicken
+4. Place the Avocados on top
+5. Drizzle the sauce on top and hold the rest in reserve for proper saucing when reheating the servings. 
 
 ### Important Cooking Notes 
 - Marinate the chicken for 1 hour or overnight for best flavours 
